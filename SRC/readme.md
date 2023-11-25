@@ -11,3 +11,4 @@ Nadie rechaza, desagrada o evita el placer mismo, porque es placer, sino porque 
  ventaja? Pero ¿quién tiene derecho a criticar a un hombre que elige disfrutar de un 
  placer que no tiene consecuencias molestas, o a uno que evita un dolor que no produce 
  ningún placer resultante?
+ hola como va?
